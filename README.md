@@ -1,0 +1,2 @@
+# datapribadi
+pribadi aja
